@@ -26,15 +26,13 @@ C'est ça que tu veux pour ton fils?\
 C'est comme ça que tu veux qu'il grandisse?\
 J'ai pas de conseil à donner, mais si tu veux pas qu'il glisse\
 Regarde-le, quand il parle, écoute-le!\
-Le laisse pas chercher ailleurs l'amour qu'il devrait y avoir dans tes yeux
+Le laisse pas chercher ailleurs l'amour qu'il devrait y avoir dans tes yeux\
 
-<span style="color:blue">\
 Laisse pas traîner ton fils\
 Si tu ne veux pas qu'il glisse\
 Qu'il te ramène du vice\
 Laisse pas traîner ton fils\
-Si tu veux pas qu'il glisse
-</span>
+Si tu veux pas qu'il glisse\
 
 Putain, c'est en me disant "j'ai jamais demandé à t'avoir!"\
 C'est avec ces formules, trop saoulées, enfin faut croire\
@@ -55,5 +53,9 @@ Croyant la jouer fine, il ne voulait pas, ne cherchait même pas\
 Chaque jour un peu plus\
 J'avais pas l'impression d'être plus coté qu'une caisse à l'argus\
 Donc j'ai dû renoncer, trouver mes propres complices\
-Mes partenaires de glisse, désolé si je m'immisce
+Mes partenaires de glisse, désolé si je m'immisce\
 
+Mais laisse pas traîner ton fils\
+Si tu ne veux pas qu'il glisse\
+Qu'il te ramène du viceLaisse pas traîner ton fils\
+Si tu veux pas qu'il glisse\

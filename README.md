@@ -1,4 +1,2 @@
-# TP-GIT
-tp git 
-
-bogoce
+# TP GIT
+### Matisse VERRECCHIA et Ziad Maslah

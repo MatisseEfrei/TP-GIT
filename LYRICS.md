@@ -58,7 +58,7 @@ Mes partenaires de glisse, désolé si je m'immisce\
 Mais laisse pas traîner ton fils\
 Si tu ne veux pas qu'il glisse\
 Qu'il te ramène du viceLaisse pas traîner ton fils\
-Si tu veux pas qu'il glisse\
+Si tu veux pas qu'il glisse
 
 Que voulais-tu que ton fils apprenne dans la rue?\
 Quelles vertus croyais-tu qu'on y enseigne?\
@@ -74,4 +74,16 @@ C'est dingue mais c'est comme çaSache qu'ici-bas, plus qu'ailleurs, la survie e
 À base de coups bas, de coups de tonba\
 D'esquives, des "shta-pow!" de putains de stonba\
 Laisse pas traîner ton filsSi tu veux pas qu'il glisse\
+Qu'il te ramène du vice
+
+Non laisse pas traîner ton fils\
+Laisse pas traîner ton fils\
+Si tu ne veux pas qu'il glisse\
 Qu'il te ramène du vice\
+Laisse pas traîner ton fils\
+Si tu veux pas qu'il glisse\
+Laisse pas traîner ton fils\
+Si tu ne veux pas qu'il glisse\
+Qu'il te ramène du vice\
+Laisse pas traîner ton fils\
+Si tu veux pas qu'il glisse

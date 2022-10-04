@@ -6,6 +6,8 @@
 
 # Lyrics Laisse pas traîner ton fils - NTM
 
+                                                                        Kool Shen
+
 À l'aube de l'an 2000 pour les jeunes c'est plus le même deal\
 Pour celui qui traîne, comme pour celui qui file\
 Tout droit, de tout façon y a plus de boulot\
@@ -28,11 +30,15 @@ J'ai pas de conseil à donner, mais si tu veux pas qu'il glisse\
 Regarde-le, quand il parle, écoute-le!\
 Le laisse pas chercher ailleurs l'amour qu'il devrait y avoir dans tes yeux\
 
+                                                                        Choeur
+
 Laisse pas traîner ton fils\
 Si tu ne veux pas qu'il glisse\
 Qu'il te ramène du vice\
 Laisse pas traîner ton fils\
 Si tu veux pas qu'il glisse\
+
+                                                                        Joey Starr
 
 Putain, c'est en me disant "j'ai jamais demandé à t'avoir!"\
 C'est avec ces formules, trop saoulées, enfin faut croire\
@@ -55,10 +61,14 @@ J'avais pas l'impression d'être plus coté qu'une caisse à l'argus\
 Donc j'ai dû renoncer, trouver mes propres complices\
 Mes partenaires de glisse, désolé si je m'immisce\
 
+                                                                        Choeur
+
 Mais laisse pas traîner ton fils\
 Si tu ne veux pas qu'il glisse\
 Qu'il te ramène du viceLaisse pas traîner ton fils\
 Si tu veux pas qu'il glisse
+
+                                                                        Kool Shen
 
 Que voulais-tu que ton fils apprenne dans la rue?\
 Quelles vertus croyais-tu qu'on y enseigne?\
@@ -76,6 +86,8 @@ D'esquives, des "shta-pow!" de putains de stonba\
 Laisse pas traîner ton filsSi tu veux pas qu'il glisse\
 Qu'il te ramène du vice
 
+                                                                        Choeur
+                                                                        
 Non laisse pas traîner ton fils\
 Laisse pas traîner ton fils\
 Si tu ne veux pas qu'il glisse\
